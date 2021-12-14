@@ -1,0 +1,3 @@
+- Hi, I’m @Ready2Hunt
+- How to reach me ( Discord ) - Mr. Smith#3301
+- I am new to code an may start learning soon.
